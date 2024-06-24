@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀Currently working as a FullStack Web Developer <br>🌟Looking to strong collaborate with the stack I already have and also learning new technologies
+🚀Currently working as a FullStack Web Developer <br>🌟Looking for strong collaborate with the stack I already have and also learning new technologies
 
 
 ## 🌐 Socials:
